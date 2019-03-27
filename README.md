@@ -1,4 +1,4 @@
 # Leikur
 
-## Link
+## Video
 > https://www.youtube.com/watch?v=MyhmmBlDbCw&feature=youtu.be
